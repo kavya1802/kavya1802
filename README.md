@@ -101,5 +101,5 @@ SRM Institute of Science and Technology (SRMIST)
 - LinkedIn: https://www.linkedin.com/in/kavya-thakker-28906428a  
 - Email: kavyathakker1802@gmail.com  
 
-✨ Always eager to learn, collaborate, and build meaningful tech solutions!
+✨ Always eager to learn, collaborate, and build meaningful tech solutions!😁
 
